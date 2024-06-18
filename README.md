@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Valudiaz78
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning software engineering
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing at the moment!
 - 📫 How to reach me: @ vdiazr@fi.uba.ar
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
